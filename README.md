@@ -1,5 +1,5 @@
-# 🐈 isabella leite
+### 🐈 isabella leite
 
 **`estudante do ensino médio`**
 
-"oii, meu nome é isabella e esse é o meu perfil no github.
+oi, meu nome é isabella e esse é o meu perfil no github. ☺️
